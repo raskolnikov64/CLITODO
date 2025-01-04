@@ -1,1 +1,1 @@
-project is done mostyl by me with help from chat gpt
+project is done mostly by me with help from chat gpt
